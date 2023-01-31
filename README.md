@@ -1,1 +1,0 @@
-# pribadi.github.io
